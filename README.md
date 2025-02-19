@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @MercyMwangi-021
-- 👀 I’m interested in Data and AI
+- 👀 I’m interested in Data,AI and Business Analytics
 - 🌱 I’m currently learning data analysis
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 💞️ I’m looking to collaborate on anythig data and business analysis.
+- 📫 Reach me via email--nemathi011@gmail.com.
+- 😄 Pronouns: She/her
 - ⚡ Fun fact: ...
 
 <!---
